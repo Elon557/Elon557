@@ -9,7 +9,7 @@
 <!---
  BARRY GIBB is a ✨ special ✨
 ---> 
-__________________________________🎟️ Ticket Types 💰 Price Ranges.    ____________________________________
+____________________________________🎟️ Ticket Types 💰 Price Ranges.    ____________________________________
 •General Admission (GA) $350-$500
 
 •Reserved Seating $520-$1005
