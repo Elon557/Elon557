@@ -1,5 +1,15 @@
-- 👋 Hi, I’m @barry Gibb
-- 👀 I’m interested in meeting barry
+Join as a member now and become eligible to win amazing prizes, including:
+
+Customized Jewelry (engraved bracelets, necklaces)
+
+Luxury Cars from top brands such as Tesla, BMW, Mercedes-Benz, Audi, and Lexus
+
+One-month Free Vacation with Jon Bon Jovi
+
+Exclusive Music Experiences: Free access to concerts, tours, and a one-month worldwide vacation during Bon Jovi or solo performances—stadium shows, festivals, and intimate gigs included
+
+- 👋 Hi, I’m @ JON BON JOVI 
+- 👀 I’m interested in meeting Jovi 
 - 🌱 I’m currently ...
 - 💞️ I love you all fans 
 - 📫 How to reach me ...
@@ -7,15 +17,6 @@
 - ⚡ Fun fact: ...🎸🎙️🎶🎼💞
 
 <!---
- BARRY GIBB is a ✨ special ✨
+ JON BON JOVI is a ✨ special ✨
 ---> 
 ____________________________________🎟️ Ticket Types 💰 Price Ranges.    ____________________________________
-•General Admission (GA) $350-$500
-
-•Reserved Seating $520-$1005
-
-•VIP Packages $740-$2000 
-
-•Meet-and-Greet Packages $4000-$26,000
-
-•Fan Club or Presale Tickets $30,000-$300,000
